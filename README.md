@@ -14,3 +14,6 @@ c'est mon histoire je dis ce que je veux? okay?  bref le cheval a disparu il est
  # Resto gourmand
  Un chat, un chien et une souris décident d'ouvrir un restaurant ensemble. Le chat s'occupe des entrées, le chien des plats principaux et la souris du fromage.
  ### Le resto a jamais ouvert
+
+
+Jusqu'à ce que 7 chasseurs de l'espace fassent éruption et armée d'une assiette géante ils gobèrent tout ces animeaux puis les arbres. puis tous les humains jusqu'à ce qu'il ne reste rien. Une fin heureuse pour que tous les enfants dorment bien.

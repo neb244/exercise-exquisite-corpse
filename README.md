@@ -17,3 +17,4 @@ c'est mon histoire je dis ce que je veux? okay?  bref le cheval a disparu il est
 
 
 Jusqu'à ce que 7 chasseurs de l'espace fassent éruption et armée d'une assiette géante ils gobèrent tout ces animeaux puis les arbres. puis tous les humains jusqu'à ce qu'il ne reste rien. Une fin heureuse pour que tous les enfants dorment bien.
+il etait une fois un garcon stupide qui comprenait rien mais apres il parti a l ecole et voila.

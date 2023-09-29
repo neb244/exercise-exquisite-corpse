@@ -11,4 +11,6 @@ ____
 
 un jour pendant une promenade il vit un cheval mais pourquoi un cheval? par ce quejustement c'est un cheval.
 c'est mon histoire je dis ce que je veux? okay?  bref le cheval a disparu il est devenu une licorne.
-
+ # Resto gourmand
+ Un chat, un chien et une souris décident d'ouvrir un restaurant ensemble. Le chat s'occupe des entrées, le chien des plats principaux et la souris du fromage.
+ ### Le resto a jamais ouvert

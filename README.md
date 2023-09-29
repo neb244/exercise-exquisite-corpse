@@ -8,3 +8,7 @@ La décision n'a pas été facile.....
 Mais le canard a décidé d'aller chasser   
 La faim était plus forte que ses convictions morales. C'est la vie...   
 ____
+
+un jour pendant une promenade il vit un cheval mais pourquoi un cheval? par ce quejustement c'est un cheval.
+c'est mon histoire je dis ce que je veux? okay?  bref le cheval a disparu il est devenu une licorne.
+
